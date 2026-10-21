@@ -4,7 +4,7 @@
 - 💞️ I’m looking for a Job that will help me grow
 - 📫 How to reach me ---- Bartolazobenezer@gmail.com
 - 😄 Pronouns: ... 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Unemployed Pro Max 
 
 <!---
 streetDawgg/streetDawgg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
