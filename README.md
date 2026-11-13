@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ben(streetDawgg)
 - 👀 I’m interested in Creating Software
-- 🌱 I’m currently learning JavaScript, Node. JAVA and Spring. #TESDA
+- 🌱 I’m currently learning JavaScript, Node. JAVA and Spring. #TESDA<3
 - 💞️ I’m looking for a Job that will help me grow
 - 📫 How to reach me ---- Bartolazobenezer@gmail.com
 - 😄 Pronouns: ... 
